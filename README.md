@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nandiniseth0809
+- 👋 Hi, I’m Nandini Seth 
 - 👀 I’m interested in Web development , Machine Learning
 - 🌱 I’m currently learning  how to deal this world duhh!!!
 - 📫 How to reach me :- https://www.linkedin.com/in/nandiniseth/
